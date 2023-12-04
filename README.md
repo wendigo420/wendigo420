@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wendigo420
+- 👀 I’m interested in developing better comic and graphic novel hosting platforms that actually share profit with creators
+- 🌱 I’m currently learning too much
+- 💞️ I’m looking to collaborate on creating a competator to webtoon
+- 📫 How to reach me digitalart@sqlmonger.com
